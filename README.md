@@ -1,3 +1,5 @@
+![gif-andromeda](https://user-images.githubusercontent.com/116194109/201537154-8d2be067-4cd3-4ba3-bc72-d74bae89b017.gif)
+
 ### hello I am Giovanna Midonz 🪐
 
 [![discord](https://img.shields.io/badge/Discord-7289DA?style=for-the-badge&logo=discord&logoColor=white)](https://discord.com/channels/1025835079857082368/1025835080372985929)
